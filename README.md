@@ -1,0 +1,2 @@
+# acces-tockent
+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
